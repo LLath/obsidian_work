@@ -1,0 +1,11 @@
+- Keine empirischen Beweise
+- Glaubenssache
+- Mensch wird als reines Triebwesen gesehen -> jedes Verhalten wird von aggressiven/sexuellen Triebimpulsen gesteuert
+- Keine Autonomie und Selbststeuerung
+- Frau ist dem Mann minderwertig (Penislosigkeit)
+	- Persönlichkeitseigenschaften wie Abhängigkeit und Unterwürfigkeit typisch weiblich
+- Kastrationsangst, Penisneid, Ödipuskonflikt
+- Kindliche Lust
+	- Bei missbrauch trägt mitschuld
+- Therapeut in der Psychoanalyse gilt als allwissend
+- Man wird in der Psychoanalyse alleingelassen mit seinen Erkenntnissen
