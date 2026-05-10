@@ -1,0 +1,7 @@
+views:
+  - type: list
+    name: Table
+    filters:
+      not:
+        - file.folder.startsWith("Extras")
+    indentProperties: true
