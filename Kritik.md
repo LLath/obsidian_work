@@ -1,0 +1,11 @@
+- Mensch wird als reines Triebwesen gesehen
+	- Alles wird von aggressiven/sexuellen Triebimpulsen gesteuert
+- Mensch verfügt über keine Autonomie und Selbststeuerung
+- Todestrieb (Thanatos), Mensch ist von natur aus aggressiv und feindselig
+- Frau ist dem Mann gegenüber minderwertig (Penislosigkeit)
+- Penislosigkeit -> Abhängigkeit und Unterwürfigkeit -> typisch weiblich
+- Aussagen nicht empirisch
+- Bei missbrauch trägt das Kind immer eine Mitschuld
+- Kinder sexualliert
+- Psychoanalyse nicht genaue definiert
+	- Therapeut gilt als allwissend

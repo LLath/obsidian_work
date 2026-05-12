@@ -20,6 +20,7 @@ Psychosexuelle Entwicklung
 - Was ist das Wichtigste das Entsteht -> Urvertrauen
 Der ödipuskonflikt
 Was ist übertragung und was ist gegenübertragung?
+
 -> Ergänzungsfrage
 Kritik
 Psychoanalyse
