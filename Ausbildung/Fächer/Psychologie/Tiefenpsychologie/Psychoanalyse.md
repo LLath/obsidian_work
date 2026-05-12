@@ -16,6 +16,7 @@ Patient wird aufgefordert seine Gedanken und Gefühle freien Lauf lassen, egal w
 	- nur woran sich erinnert werden kann
 - Latenter Trauminhalt
 	- verborgene unbewusste Bedürfnisse
+		- Ängste, Konflikte
 	- wird von Therapeut gedeutet
 
 # Widerstände erkennen
