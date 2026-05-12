@@ -5,9 +5,9 @@ Wenig Bedürfnisserfüllung = mehr Angst -> Abwehrmechanismus
 Übertragung von Angst auslösenden Impulsen auf andere Gegenstände, Menschen.
 **Bsp**: "Man bekommt eine schlechte Note und schiebt dies auf den viel zu schweren Test"
 
-# Fixierung
-Aus Angst den Anforderungen gerecht zu werden bleibt die Person auf der Stelle stehen.
-**Bsp**: "Ein Kind das plötzlich trotzig wird nachdem ein Geschwister geboren wurde"
+# Verleugnung
+Gefahr wird vermildert dargestellt oder verleugnet
+**Bsp**: "Das ist garnicht so gefährlich"
 
 # Regression
 Eine Entwicklungsstufe zurück fallen um an Aufmerksamkeit zu kommen.
