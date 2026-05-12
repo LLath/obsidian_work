@@ -1,8 +1,26 @@
 (Eisbergmodell)
 Zensor trennt das **Unbewusste** vom **Vorbewussten** und **Bewussten**
-Unbewusste -> Es
-Vorbewusstsein -> Über-Ich
-Bewusstein -> Ich
+
+
+### Bewusstein
+- seelische inhalte die unmittelbar zugägnlich sind
+	- Gedanken
+	- Wünsche
+	- Gefühle
+### Vorbewusstsein
+- seelische inhalte die aktuell nicht bewusst sind
+	- Friseurtermin
+	- Persönlichkeitsmerkmale
+	- Ängste
+	- Beziehungen
+
+**Zensor** -------- alles über dem Zensor kann mit Worten berknüpft werden
+### Unbewusste
+- nicht direkt zugänglich 
+	- Instinkte
+	- Erbanlagen
+	- Traumatische erlebnisse
+
 
 Zensor ist **tagsüber** stärker ausgeprägt.
 
