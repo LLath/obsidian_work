@@ -6,4 +6,4 @@ Im Krieg hat er seinen eigenen Vater erschlagen und seine Mutter als Kriegsgefan
 ### Komplex
 - Konkurenzkampf mit dem gleichgeschlechtlichen Elternteil
 - -> Als Junge ist der Vater ein Gegner um die Aufmerksamkeit der Mutter
-- -> Wenn **gelöst** macht der Jugne den Vater nach
+- -> Wenn **gelöst** macht der Junge den Vater nach
