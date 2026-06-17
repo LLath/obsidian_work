@@ -13,7 +13,7 @@
 (heutige Annahme)
 Der MENSCH ist
 - erziehbar
-- lerngähig
+- lernfllähig
 - erziehungsbedürftig
 
 # Anthropologie (Wissenschaft des Menschen)
@@ -100,3 +100,16 @@ Geistigkeit muss durch Lern- und Erziehungprozesse hevorgehoben werden. Schicksa
 - Ersellung von Wekzeugen
 - Huhn szene -> überlegen über konsequenzen?
 - Mediennutzung
+
+2tes Thema
+### Frühgeburt
+- Hilfloser Nestflüchter
+- Sinnesorgane funktionieren bereits aber wir müssen noch alle menschlichen Verhaltensweisen lernen wie aufrecht laufen
+
+- Victor musste den aufrechten Gang noch lernen
+	- keine menschlichen Verhaltensweisen gelernt in der Wildniss
+- Die ersten paar Jahre (Stillzeit) bei den Eltern gelebt
+	- sonst wäre er nicht überlebensfähig
+
+
+#literatur Mama Lern Deutsch

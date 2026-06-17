@@ -32,4 +32,5 @@ Zensor ist **tagsüber** stärker ausgeprägt.
 3. **Realität** gewinnt -> Ich passt sich der realität an
 
 ## Ich stärke (beispiele?)
--> Gleichgewicht zwischen **Es**, **Über-Ich** und **Realität
+-> Gleichgewicht zwischen **Es**, **Über-Ich** und **Realität**
+-> Bedürfnisse befriden können ohne über Grenzen zu gehen

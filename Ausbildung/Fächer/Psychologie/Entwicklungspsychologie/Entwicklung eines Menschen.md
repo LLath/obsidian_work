@@ -52,7 +52,7 @@ Innere Sätze
 - "Wer bin ich überhaupt?"
 
 ### Phase 3
-71 UE fehlzeiten / 200 UE darf man
+79 UE fehlzeiten / 200 UE darf man
 
 
 #### Andere Fälle
