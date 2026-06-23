@@ -36,9 +36,25 @@ Mildeste, weiksame Mittel zur Abwehr  des Angriffs gewählt
 Verteidung gegen einene Angreifer. Keine Gewichtung von Rechtsgüter
 - Notstand
 Eine drohende Gefahr steht an und eine Person greift an und begeht eine Straftat. Egal was für eine Gefahr
-1. Beispiele
-2. Altersgrenzen Jugendstrafrecht
+10. Altersgrenzen Jugendstrafrecht
 < 14 Jahre -> Nicht strafmündig -> Erziehermaßnahmen können durch das Jugendamt erfolgen
 14-17 Jahre -> Strafmündig -> Jugendstrafrecht
 18-20 Jahre -> Strafmündig -> Jugendstrafrecht/Erwachsenenstrafrecht
 -> Hier wird geprüft ob die Person 
+11. Sanktionen im Jugendstrafrecht
+Erziehungsmaßregeln: Trainingskursen, Entschuldigung
+Zuchtmittel: Leichte sanktionen -> Verwarnung oder Jugendarrest
+Jugendstrafe: Wird nur verhängt wenn Erziehungsmßregeln und Zuchtmittel nicht reichen
+12. Aufgaben des Jugendstrafrechts
+Erstellung eines Sozialberichts
+	Familie
+	Schule/Beruf
+	Freunde
+	Reife
+Unterstützung bei der Verhandlung
+	Gericht bekommt erzieherische Perspektive
+Beratung und Betreuung des Jugendlichen
+	Informiert und leitet HIlfen ein
+Nachsorge und Resozialisierung
+13. Reife, art und schwere der Tat und Motivation
+14. Ladendiebstahl als Mutprobe, Graffiti, Beleidigung
